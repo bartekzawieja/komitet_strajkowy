@@ -1,0 +1,1 @@
+# komitet_strajkowy
